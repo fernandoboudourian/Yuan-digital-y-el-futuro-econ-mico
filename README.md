@@ -1,1 +1,1 @@
-# Yuan-digital-y-el-futuro-econ-mico
+# Yuan-digital-y-el-futuro-económico
